@@ -14,3 +14,7 @@ this starts https://github.com/john-stellar/inflation-policy/blob/4ee797fdd0c179
 - https://youtu.be/EgygIGLG8DQ~
 
 just like actula garnts, the stage isa  form of inwesetment. we shoeld eb bable to see how the Fonudnat pormens with its trades so as to analyze the rececpnt opportnites for new allcoatns
+
+bais for mexpansion in https://github.com/SCF-Public-Goods-Maintenance/scf-public-goods-maintenance.github.io/pull/210
+
+i wish i had more basis for alex through tup
